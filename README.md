@@ -1,1 +1,2 @@
-# LIRABOT
+
+ебать колотить# LIRABOT
